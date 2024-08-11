@@ -1,1 +1,1 @@
-siapa tau ada yang pengen bucin
+FUCK YOU
